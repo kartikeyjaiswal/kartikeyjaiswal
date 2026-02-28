@@ -44,7 +44,7 @@ I’m actively seeking **internship / fresher opportunities** where I can contri
 
 **Lovely Professional University**  
 B.Tech in Computer Science & Engineering  
-📅 Aug 2022 – Present | CGPA: 7.07  
+📅 Aug 2022 – Present 
 📍 Phagwara, Punjab  
 
 **St. Xavier’s Public School**  
